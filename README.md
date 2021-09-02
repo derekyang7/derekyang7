@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Derek. I'm always looking to engage in new and exciting projects. If you'd like to build something together, get in touch!
+- 📫 You can reach me at https://www.linkedin.com/in/derek-y/.
